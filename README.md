@@ -1,0 +1,2 @@
+# graduationnn
+Selamat jadi pengangguran
